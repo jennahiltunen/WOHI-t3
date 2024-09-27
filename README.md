@@ -1,1 +1,1 @@
-# WOHI-t3 - [jennahiltunen]
+# WOHI-t3 - jennahiltunen
